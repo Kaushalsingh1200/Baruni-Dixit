@@ -1,2 +1,1 @@
-# Baruni Dixit
-### Indian teen comedian
+# Indian teen comedian
